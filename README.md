@@ -1,1 +1,1 @@
-👋 Hello fellow human
+👋 Hi
